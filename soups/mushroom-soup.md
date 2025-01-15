@@ -15,6 +15,7 @@
 - **Fresh parsley** chopped, for garnish
 - **Crusty bread** for serving
 - **1** tomato 
+- **1** egg
 
 
 ## Instructions
